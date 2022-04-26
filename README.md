@@ -1,2 +1,2 @@
-# Don-of-Lagos
+# DON
 Twitter handle
